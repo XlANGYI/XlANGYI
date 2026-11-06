@@ -4,7 +4,7 @@
 
 ### <p align="center">xiangyi⠀、xia
   
-### <p align="center">cosmos & shellies iwec or just dni in general
+### <p align="center">iwec or just dni in general
 
 ### <p align="center">nonsharing sprout yume
 
